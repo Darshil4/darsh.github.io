@@ -17,7 +17,17 @@ Tertiary: University of Cape Town, BBusSci Analytics (Honours in Mathematical St
 
 ## Interests 
 
+Data Science 
+
+Analytics 
+
+Financial Markets
+
+Economics 
+
 
 ## Contact
+
+
 
 
